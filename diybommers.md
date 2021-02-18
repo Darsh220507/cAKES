@@ -1,0 +1,10 @@
+directions
+In a microwave, melt butter and chocolate; stir until smooth. Set aside to cool. In a large bowl, whisk the eggs, milk, vanilla and cooled chocolate mixture. Combine the flour, sugar and salt; add to egg mixture and mix well. Cover and refrigerate for 2 hours or overnight. (Batter will appear curdled.)
+For buttercream, in a microwave, melt white chocolate with cream; stir until smooth. Set aside to cool. In a small bowl, combine sugar and cream of tartar.
+Place egg whites in a double boiler or metal bowl over simmering water; stir in the sugar mixture. Constantly whisk until mixture reaches 120-130° (do not overheat). Stirring gently, keep at 120-130° for 2 minutes. Immediately transfer to a mixing bowl.
+With a whisk attachment, beat on high speed for 5 minutes. Reduce speed and beat for 5 additional minutes or until cool and stiff. Transfer to a large bowl.
+In the same mixing bowl with the whisk attachment, beat butter and vanilla until light and fluffy. Beat in cooled white chocolate mixture. With a spatula, stir a fourth of the meringue into butter mixture until no white streaks remain. Fold in remaining meringue. Cover and refrigerate.
+Heat a lightly greased 8-in. nonstick skillet over medium heat; pour 2 tablespoons crepe batter into center of skillet. Lift and tilt pan to coat bottom evenly. Cook until top appears dry, about 2 minutes; turn and cook 15-20 seconds longer. Remove to a wire rack. Repeat with remaining batter, greasing skillet as needed.
+When cool, stack crepes with waxed paper or paper towels in between.
+To assemble, place one crepe on a cake plate. Spread with 3 tablespoons buttercream. Repeat layers until 10 crepes are used. Refrigerate for 15 minutes. Repeat layering and chilling until 30 crepes are used, ending layers with a crepe. (Save remaining crepes for another use.) Refrigerate.
+For ganache, place chocolate in a small bowl. In a small saucepan, bring the cream, corn syrup and salt just to a boil. Pour over chocolate; whisk until smooth. Cool, stirring occasionally, until ganache reaches a spreading consistency. Spread over top and sides of cake. Refrigerate for 1 hour before serving.
